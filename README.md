@@ -21,10 +21,9 @@
 <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?http%3A%2F%2F110%2Fmh%2Farticles%2F2017%2F2%2F14%2F千万不要“去见马克思”（图）-343079.html&from=wnel">◆千万不要“去见马克思”</a><br/> 
 <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?http%3A%2F%2F110%2Fmh%2Farticles%2F2017%2F2%2F19%2F您把毒誓发给了谁-（图）-343273.html&from=wnel">◆您把毒誓发给了谁？</a><br/> 
 <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?http%3A%2F%2F110%2Fmh%2Farticles%2F2017%2F2%2F18%2F您知道中共党徽藏着什么秘密吗（图）-343241.html&from=wnel">◆您知道中共党徽藏着什么秘密吗</a><br/> 
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?http%3A%2F%2F110%2Fmh%2Farticles%2F2017%2F4%2F19%2F真相能使人无惧于邪党淫威-345833.html&from=wnel">◆真相能使人无惧于邪党淫威</a><br/> 
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?http%3A%2F%2F110%2Fmh%2Farticles%2F2017%2F4%2F19%2F真相能使人无惧于邪党淫威-345833.html&from=wnel">◆真相能使人无惧于邪党淫威</a><br/> 
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?http%3A%2F%2F110%2Fmh%2Farticles%2F2017%2F4%2F19%2F真相能使人无惧于邪党淫威-345833.html&from=wnel">◆真相能使人无惧于邪党淫威</a><br/> 
-
+<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?http%3A%2F%2F110%2Fmh%2Farticles%2F2017%2F4%2F7%2F江泽民利用中共邪教组织破坏法律实施（上）-345249.html&from=wnel">◆江泽民利用中共邪教组织破坏法律实施（上）</a><br/> 
+<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?http%3A%2F%2F110%2Fmh%2Farticles%2F2017%2F4%2F8%2F江泽民利用中共邪教组织破坏法律实施（中）-345266.html&from=wnel">◆江泽民利用中共邪教组织破坏法律实施（中）</a><br/> 
+<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?http%3A%2F%2F110%2Fmh%2Farticles%2F2017%2F4%2F9%2F江泽民利用中共邪教组织破坏法律实施（下）-345248.html&from=wnel">◆江泽民利用中共邪教组织破坏法律实施（下）</a><br/> 
    </tr>
   <tr>
 <tr><td align=center>▼▼▼更多精彩，请看下面▼▼▼<br/>
